@@ -1,7 +1,7 @@
 # WEB3WEB4WEB5
 WEB3 &amp; WEB4 WEB5 终极指南 - 2026 Edition-web1
 
-WEB3 & WEB4 终极指南 2026 免费版（想阅读100章的版本可以邮件打赏+购买）
+WEB3终极指南 2026 免费版（想阅读100章的版本可以邮件打赏+购买）
 
 
 序章：为什么是 Solana + EACO？
