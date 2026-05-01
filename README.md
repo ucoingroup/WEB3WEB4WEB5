@@ -238,11 +238,11 @@ web3web4智能科技 ，
 
 这本电子书发展的，欢迎打赏sol&wBNB及链上所有代币，
 
-SOL/wBNB/eETH等地址，
+SOL/wBNB/eETH / USDT /eaco 等地址，
 
 8jpA6mfoZvdbQA1tMqWZyQnsn3CqtRfjeaXPArt4uhNE
 
-BNB/evm地址，
+BNB/evm / USDC 等地址，
 
 0xedba2da577942bff3ca03bcb88b0190a3dbeef94
 
