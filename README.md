@@ -311,7 +311,7 @@ EACO Solana 官方合约地址：DqfoyZH96RnvZusSp3Cdncjpyp3C74ZmJzGhjmHnDHRH
 
 web3web4智能科技 ，
 
-这本电子书发展的，欢迎打赏sol & wBNB 及链上所有代币，
+看好 这本电子书发展的，欢迎打赏sol & wBNB 及链上所有代币，
 
 SOL / wBNB / wETH / USDT /eaco 等地址，
 
