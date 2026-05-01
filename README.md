@@ -230,3 +230,26 @@ EACO Solana 官方合约地址：DqfoyZH96RnvZusSp3Cdncjpyp3C74ZmJzGhjmHnDHRH
 说明
 可能会随时优化更新，
 仅供海外华人网友参考，自行负责，投资与本文无关。
+
+
+## WEB3 & WEB4 WEB5 终极指南 - 2026 Edition-web1 海外打赏+赞助 
+
+web3web4智能科技 ，
+
+这本电子书发展的，欢迎打赏sol&wBNB及链上所有代币，
+
+SOL/wBNB/eETH等地址，
+
+8jpA6mfoZvdbQA1tMqWZyQnsn3CqtRfjeaXPArt4uhNE
+
+BNB地址，
+
+0xedba2da577942bff3ca03bcb88b0190a3dbeef94
+
+
+<img width="347" height="519" alt=" web3web4智能科技 FjOVS5KshMWaCUM4CwIiB2rgoxgJ" src="https://github.com/user-attachments/assets/8fb931c6-aeb2-4e9a-b609-5dc943a8d492" />
+
+
+<img width="340" height="462" alt="web3web4智能科技 FhtV-FCjmSmL7vBnN2Xg4PUImn5E" src="https://github.com/user-attachments/assets/de7df542-a0fa-4183-be06-7a8ca928e6fa" />
+
+
