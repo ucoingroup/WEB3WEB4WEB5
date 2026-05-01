@@ -242,7 +242,7 @@ SOL/wBNB/eETH等地址，
 
 8jpA6mfoZvdbQA1tMqWZyQnsn3CqtRfjeaXPArt4uhNE
 
-BNB地址，
+BNB/evm地址，
 
 0xedba2da577942bff3ca03bcb88b0190a3dbeef94
 
